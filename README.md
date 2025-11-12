@@ -59,7 +59,7 @@ Here are some of the projects I've worked on:
 Feel free to connect with me!
 
 * **Email:** kritikaparihar0647@gmail.com
-* **Phone:** +91-7909586848
+* **Phone:** +91-790958****
 * **GitHub:** [KritikaSinghParihar](https://github.com/KritikaSinghParihar)
 * **LinkedIn:** [Kritika Singh Parihar](https://www.linkedin.com/in/kritika-singh-parihar-895450233)
 
